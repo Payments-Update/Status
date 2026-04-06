@@ -11,7 +11,7 @@ Current Plan: 1-Year Subscription.
 Paid:  $348.37 USD
 
 Support Information:
-Please get in touch with our support team if you require help or did not approve this payment: Consult Customer Service.​ +1 (833) 419-2915​
+Please get in touch with our support team if you require help or did not approve this payment: Consult Customer Service.​ +1 (833) 419-2915.​
 
 Thanks,
 Billing Dept.
