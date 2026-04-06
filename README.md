@@ -7,7 +7,7 @@ We appreciate you picking us. We are pleased to inform you that the $348.37 USD 
 Order Description:
 Transaction ID: 54874541
 Product: Norton Life Lock
-Current Plan: 1-Year Subscription
+Current Plan: 1-Year Subscription.
 Paid:  $348.37 USD
 
 Support Information:
